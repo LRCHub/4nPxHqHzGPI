@@ -1,4 +1,4 @@
-# back number – ささえる人の歌 - Sasaeru Hitono Uta
+# back number – ささえる人の歌
 
 > **歌詞登録ステータス：同期歌詞あり**
 
